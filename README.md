@@ -34,7 +34,7 @@
 ---
 
 ### 📫 How to reach me:
-- 🌐 [Website](https://av3nirr.pages.dev)
+- 🌐 [Website](https://guns.lol/av3nirr_)
 - 📧 hav3nir@gmail.com
 
 ---
